@@ -2,7 +2,7 @@
 - 👀 I’m interested in Scratch 
 - 🌱 I’m currently learning Scratch 
 - 💞️ I’m looking to collaborate on scratch 
-- 📫 How to reach me @LgiidNDink
+- 📫 How to reach me @LgiidNDino
 - 😄 Pronouns: me
 - ⚡ Fun fact: baba
 
